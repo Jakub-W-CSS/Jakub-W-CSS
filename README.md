@@ -6,3 +6,9 @@
 - 😄 Pronouns: Hate/Agony
 - ⚡ Fun fact: I do not like CSS
 
+I need YOU :finger_pointing_at_YOU: to join the "CING"(CSS is not great) movement!!!
+
+We occasionally hold: 
+Weekly meetings where we come up with ideas for the least creative criticism towards CSS that is possible possible.
+Monthly rallies all-around the world(allegedly)
++Other events(like spreading misinformation of platforms like twitter)
