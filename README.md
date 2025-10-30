@@ -12,3 +12,5 @@ We occasionally hold:
 Weekly meetings where we come up with ideas for the least creative criticism towards CSS that is possible possible.
 Monthly rallies all-around the world(allegedly)
 +Other events(like spreading misinformation of platforms like twitter)
+
+https://media.tenor.com/pDlPbgvTF8cAAAAM/deltarune-delta-rune.gif
